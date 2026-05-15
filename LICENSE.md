@@ -1,4 +1,4 @@
-# 
+# Get the ultimate grid trading bot for futures with new grid trading bot for futures Module | grid-trading + risk-management. Featuring grid-trading and risk-management, it's the
 
 
 
